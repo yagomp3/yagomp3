@@ -5,7 +5,7 @@
 ⠀⠀🤓 Programante Java<br>
 ⠀⠀😍 Casado<br>
 ⠀⠀👾 Hacker (xiiuuuu🤫)<br>
-⠀⠀🥴 Cursando na [Alura](https://www.alura.com.br)<br>
+⠀⠀🥴 Cursando na [Alura](https://cursos.alura.com.br/user/lopes-yago)<br>
 ⠀⠀🍆 Futuro rei da programação<br>
 <br> <br>
   <img height="80" src="https://media0.giphy.com/media/lp3GUtG2waC88/giphy.gif?cid=ecf05e47m1mj9ay1fzhine7rcjvb6c3c89kfbdtant85nrnx&rid=giphy.gif&ct=g">
