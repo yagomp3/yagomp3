@@ -7,4 +7,5 @@
 ⠀⠀👾 Hacker (xiiuuuu🤫)<br>
 ⠀⠀🥴 Cursando na [Alura](https://www.alura.com.br)<br>
 ⠀⠀🍆 Futuro rei da programação<br>
+
   <img height="60" src="https://media0.giphy.com/media/lp3GUtG2waC88/giphy.gif?cid=ecf05e47m1mj9ay1fzhine7rcjvb6c3c89kfbdtant85nrnx&rid=giphy.gif&ct=g">
