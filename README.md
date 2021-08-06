@@ -1,4 +1,4 @@
-<h1> <img height="60" src="https://www.kindpng.com/picc/m/2-27431_transparent-skull-png-tumblr-skull-gif-transparent-background.png"> </h1> Olà
+<h1> <img height="60" src="https://i.giphy.com/media/ySeqU9tC1eFjy/giphy.webp"> Olá </h1> 
 
 <img align="left" height="175" src="https://media1.tenor.com/images/3ecd597130405bb241360e300149b6ca/tenor.gif"> ⠀⠀😎 Yago  <br>
 ⠀⠀😂 17 anos<br>
